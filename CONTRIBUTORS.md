@@ -1,4 +1,4 @@
-- Nome do Cicrano  (RAXXXXX)
+- Nome do Beltrano  (RAXXXXX)
 - Nome do Fulano  (RAXXXXX)
 - Nome do Fulano  (RAXXXXX)
 - Nome do Fulano  (RAXXXXX)
